@@ -1,0 +1,1 @@
+# cubinaka-assets
